@@ -1,0 +1,1 @@
+Concluí com êxito o desafio proposto pela Digital Innovation One, finalizando ambos os projetos de forma satisfatória. Estou satisfeito com os resultados alcançados. Caso haja alguma orientação adicional ou se precisar de suporte em projetos futuros, ficarei grato em colaborar. Obrigado pela oportunidade de participar deste desafio.
